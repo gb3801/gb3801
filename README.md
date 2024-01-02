@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with **learning a new skill**
 
-- 📫 How to reach me **gokulboopalan20@gmail.com**
+- 📫 You can reach me **gokulboopalan20@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1-ihWh2NDNu8DZ7Ker0JDH2KDPkt328Ij/view?usp=sharing](https://drive.google.com/file/d/1-ihWh2NDNu8DZ7Ker0JDH2KDPkt328Ij/view?usp=sharing)
 
